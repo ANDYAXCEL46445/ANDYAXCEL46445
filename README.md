@@ -79,8 +79,5 @@ This list is not representative of my skill, but ranks the languages I use the m
 
 ## 👩‍💻 Reach me
 
-My pronouns are she/her.
 
-<img src="https://user-images.githubusercontent.com/7455707/217067036-49c515a7-13d4-4b5b-aed0-18d86c93970b.png" height="100" /> fb: [@]([(https://www.facebook.com/profile.php?id=61556339834997)])
-<br/>
 
