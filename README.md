@@ -71,7 +71,7 @@ trabajó como diplomático e ingeniero, sirviendo como contramaestre. 😎🎉�
 
 ## 📈 Some stats
 
-[![SweetSofiMC's GitHub stats](https://github-readme-stats.vercel.app/api?username=sofiadparamo&show_icons=true&theme=radical&count_private=true)](https://github.com/anuraghazra/github-readme-stats) 
+[![SweetSofiMC's GitHub stats](https://github-readme-stats.vercel.app/api?username=andyaxcel&show_icons=true&theme=radical&count_private=true)](https://github.com/anuraghazra/github-readme-stats) 
 
 This list is not representative of my skill, but ranks the languages I use the most in my public projects on GitHub.
 
