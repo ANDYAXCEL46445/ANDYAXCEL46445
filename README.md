@@ -1,4 +1,7 @@
-<h1 align="center">![@ANDYAXCEL46445](https://avatars.githubusercontent.com/u/159587029?s=400&u=3ce457a076ac0a274e6ac737437534f9a11fd841&v=4)
+<p style="text-align: center; font-family: 'Arial', sans-serif; font-size: 24px;">
+    ![@ANDYAXCEL46445](https://avatars.githubusercontent.com/u/159587029?s=400&u=3ce457a076ac0a274e6ac737437534f9a11fd841&v=4)
+</p>
+
 
 
 <h1 align="center">
