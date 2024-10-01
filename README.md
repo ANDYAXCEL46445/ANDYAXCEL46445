@@ -10,12 +10,11 @@
 
 - 🅵🅸🅻á🅽🆃🆁🅾🅿🅾 🅳🅴 🅲🅸🅴🅽🅲🅸🅰🆂 🤓
 - 🅴🆇 🅳🅸🅿🅻🅾🅼á🆃🅸🅲🅾 🅴 🅸🅽🅶🅴🅽🅸🅴🆁🅾 😎
-
+## 💼 🅂🄴🄴 🄼🅈 🅆🄾🅁🄺😎
 <p align="center">
   <img src="https://visitor-badge.laobi.icu/badge?page_id=sweetsofimc.sweetsofimc" alt="visitor badge"/>
 </p>
-
-## 💼 See my work😎
+#⃣   #⃣    �⃣   �⃣    S⃣   e⃣   e⃣    m⃣   y⃣    w⃣   o⃣   r⃣   k⃣   �⃣   �⃣
 
 - [ M🐱‍👤🐱‍🏍y website](https://gnulahd.nu/)
 
