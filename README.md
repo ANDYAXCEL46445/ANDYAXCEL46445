@@ -2,19 +2,19 @@
   Hi there 🌸
 </h1>
 
-**I'm a mexican :mexico: Software Engineer  💻,  and daydreamer ✨.**
+**peruano de naciminto que travaja para la cia y el aerea 51  :JUNIN_PERENE_ALTOCHINCARMAS: Software Enginiero de peru  💻, y filantropo de ciencias .🤣😂😂😊💕**
 
-My personal mission is to change the world by creating a positive impact while doing the things I love. 💖
+trabajó como diplomático e ingeniero, sirviendo como contramaestre. 😎🎉👏
 
 <p align="center">
   <img src="https://visitor-badge.laobi.icu/badge?page_id=sweetsofimc.sweetsofimc" alt="visitor badge"/>
 </p>
 
-## 💼 See my work
+## 💼 See my work😎
 
-- [🌸 My website](https://sweetsofimc.dev/)
+- [ M🐱‍👤🐱‍🏍y website](https://sweetsofimc.dev/)
 
-- [📁 Devpost](https://devpost.com/SweetSofiMC)
+- [📁🐱‍👤🐱‍🏍🎶 Devpost](https://devpost.com/SweetSofiMC)
 
 ## 🚀 Achievements
 
