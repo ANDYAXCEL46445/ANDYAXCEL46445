@@ -75,7 +75,7 @@ trabajó como diplomático e ingeniero, sirviendo como contramaestre. 😎🎉�
 
 This list is not representative of my skill, but ranks the languages I use the most in my public projects on GitHub.
 
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=sofiadparamo&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=andyaxcel&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
 
 ## 👩‍💻 Reach me
 
