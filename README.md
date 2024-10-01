@@ -4,15 +4,12 @@
 </p>
 
 
+# **🅷🅾🅻🅰, 🆂🅾🆈 🆄🅽 🅸🅽🅶🅴🅽🅸🅴🆁🅾 🅳🅴 🆂🅾🅵🆃🆆🅰🆁🅴 🅳🅴 🅿🅴🆁ú 💻**
 
+## *🆃🆁🅰🅱🅰🅹🅰🅽🅳🅾 🅿🅰🆁🅰 🅻🅰 🅲🅸🅰 🆈 🅴🅻 Á🆁🅴🅰 51 🚀*
 
-<h1 align="center">
-  Hi there 🐱‍👤🐱‍🏍
-</h1>
-
-**peruano de naciminto que travaja para la cia y el aerea 51  :JUNIN_PERENE_ALTOCHINCARMAS: Software Enginiero de peru  💻, y filantropo de ciencias .🤣😂😂😊💕**
-
-trabajó como diplomático e ingeniero, sirviendo como contramaestre. 😎🎉👏
+- 🅵🅸🅻á🅽🆃🆁🅾🅿🅾 🅳🅴 🅲🅸🅴🅽🅲🅸🅰🆂 🤓
+- 🅴🆇 🅳🅸🅿🅻🅾🅼á🆃🅸🅲🅾 🅴 🅸🅽🅶🅴🅽🅸🅴🆁🅾 😎
 
 <p align="center">
   <img src="https://visitor-badge.laobi.icu/badge?page_id=sweetsofimc.sweetsofimc" alt="visitor badge"/>
