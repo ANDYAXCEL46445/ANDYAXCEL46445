@@ -1,5 +1,5 @@
 <h1 align="center">
-  Hi there 🌸
+  Hi there 🐱‍👤🐱‍🏍
 </h1>
 
 **peruano de naciminto que travaja para la cia y el aerea 51  :JUNIN_PERENE_ALTOCHINCARMAS: Software Enginiero de peru  💻, y filantropo de ciencias .🤣😂😂😊💕**
